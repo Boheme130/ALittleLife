@@ -1,5 +1,4 @@
-## A Lillte Life
-## 一场失败的救赎
+## A Little Life —— 一场失败的救赎
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 <br/>
 <br/>
